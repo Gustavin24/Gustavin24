@@ -7,6 +7,8 @@ Meu nome é Gustavo Henrique
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos dsenvolvidos
 
   ### para entrar em contato comigo
-  00001113646536sp@al.educaao.sp.gov.br
+  00001113646536sp@al.educacao.sp.gov.br
 
-  ![](https://tenor.com/pt-BR/view/pedro-pedro-flamengo-pedro-guilherme-pedro-libertadores-gif-26958859)
+@Gustavin24
+
+  ![](https://tenor.com/c0DuSDwLNxH.gif)
